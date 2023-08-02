@@ -1,16 +1,12 @@
-### Hi there 👋
+### Salve negrao, bao? 
 
-<!--
-**jaozicabolada1/jaozicabolada1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+meu nome é jao
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- 🔭 I’m currently working on nada, sou vagabundo  
+- 🌱 I’m currently learning 1 ano do enino medio
+- 👯 I’m looking to collaborate on tudo
+- 🤔 I’m looking for help with tudo
+- 💬 Ask me about tudo
+- 📫 How to reach me: https://instagram.com/jao.ricci?utm_ource=qr&igshid=MzNINGNkZWQ4Mg%3%3D cola no google 👉👈 se n der bota @jao.ricci
+- 😄 Pronouns: ele/dele
+- ⚡ Fun fact: nada, apenas vagabundagem
